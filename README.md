@@ -252,35 +252,35 @@ The Gear People continue to build.
 
 ---
 
-## 🍫 Legal mushroom gummies/chocolate (Silly Farms, can still purchase on clearnet)
+# 🍫 Legal mushroom gummies/chocolate (Silly Farms, can still purchase on clearnet)
 [Silly Farms Premium Microdose Magic Mushroom Gummies - 4000mg Labs PDF](https://greatcbdshop.com/wp-content/uploads/2024/09/Silly-Farms-Premium-Microdose-Magic-Mushroom-Gummies-4000mg-Labs.pdf)
 # 4-AcO-DMT ^LAB REPORTS^ (Psilacetin (PSLA) = 4-AcO-DMT) || 30 mg's per package = 3.5g of psilocybe cubensis
 
-## 🌟 Introduction
+### 🌟 Introduction
 
 Going into this trip, I fully expected it not to work because I had just tripped on Tuesday. I planned to take three gummies, but I accidentally took four.
 
 I’d tried Silly Farms before, and honestly, it never really worked for me—it was really weak.
 
-## ⏳ The Onset
+### ⏳ The Onset
 
 I was lying in bed watching guitar riff covers when that familiar mushroom vibe slowly started to settle in. Around 50 minutes in, I was laughing like crazy. I didn’t think it was going to work, but damn, it felt exactly like mushrooms.
 
 At that point, I got up and went to my desk to heat the nectar collector and take some dabs. That session lasted about 15 minutes.
 
-## 🎨 Visuals Begin
+### 🎨 Visuals Begin
 
 After the dabs, I laid back in bed and started noticing colors shifting a little. Definitely feeling it, I took two more gummies.
 
 I stood up to change the movie—my laptop was hooked up to the TV—but when I got to it, I just kept staring and completely forgot what I wanted to do. This happened a few times before I finally put on the original *Matrix* (1999).
 
-## 🚀 Deepening Trip
+### 🚀 Deepening Trip
 
 Lying in bed watching *The Matrix*, the trip really kicked in. I felt a strong body load and my headspace was forming. When I closed my eyes, I saw little green dots forming.
 
 During a scene where Neo smokes a cigarette, I got an intense urge to go smoke.
 
-## 🚬 Smoking Mission & Visuals Outside
+### 🚬 Smoking Mission & Visuals Outside
 
 I set out on a mission to grab my Marlboros and headphones from my truck.
 
@@ -288,7 +288,7 @@ Outside, everything looked wild. Sitting in my truck, lighting a cigarette, the 
 
 I was definitely tripping hard on six gummies. That cigarette was surprisingly good.
 
-## 🔥 Return & Headphone Fumble
+### 🔥 Return & Headphone Fumble
 
 After finishing the cigarette, I stayed in the truck and played some TOOL.
 
@@ -296,7 +296,7 @@ Remembering I was watching *The Matrix*, I rushed back inside and threw the movi
 
 Then I realized I forgot my headphones in the truck. I started swearing loudly and laughing. I said, “Fuck it,” and put the movie on again.
 
-## 🌈 Full Trip Activation
+### 🌈 Full Trip Activation
 
 I laid back in bed and took the last two gummies.
 
@@ -304,7 +304,7 @@ At this point, I was feeling really high with nice visuals and an awesome headsp
 
 After finishing the movie, I was stuck in bed. I decided it was time to stop being just “high” and actually trip. So I unpacked the mushroom chocolate bar and ate half of it.
 
-## 💥 Blastoff
+### 💥 Blastoff
 
 At first, my closed-eye visuals were light—just some dots and shifting colors.
 
@@ -314,7 +314,7 @@ That was the signal to blast off.
 
 I ate the other half of the bar, turned off all the lights, put on TOOL’s *Lateralus* playlist, and dove into epic closed-eye visuals and a deep headspace.
 
-## 🔮 The Visuals & Journey
+### 🔮 The Visuals & Journey
 
 The visuals were impossible to describe—like a circle of shapes and random objects rotating.
 
@@ -326,7 +326,7 @@ Then I switched to an Arab woman, living her life too.
 
 It made no sense, but it happened.
 
-## 🌌 Dissolution & Return
+### 🌌 Dissolution & Return
 
 I started losing touch with reality, drifting into something between sleep and trip.
 
@@ -334,7 +334,7 @@ I found myself wandering through a town my mind created—a recreation of my hom
 
 I wandered until I faded away.
 
-## 🌙 Aftermath
+### 🌙 Aftermath
 
 I snapped out of it around 11 PM, still feeling a little high but fading.
 
