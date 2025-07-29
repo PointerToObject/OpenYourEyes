@@ -1,11 +1,11 @@
 # OpenYourEyes
-Just a brief summary of my experiences 
 
 
 
-# 🌌 Psilocybin Trip Journal
 
-Personal logs of my Psilocybe cubensis B+ experiences — raw, reflective, and real.
+# 🌌 Trip Journal
+
+Personal logs of my psychedelic experiences. 
 
 ---
 
