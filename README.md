@@ -130,6 +130,7 @@ I texted my boss. Put in my two weeks. Signed up for college. The trip was over,
 
 
 ## 🍄 Trip Log – 1.5g Psilomart Nondetect legal mushrooms ( still avaliable online lmfao )  
+## clearnet "non detect" mushrooms. these dudes are literally just packaging random cubes and selling them in bulk. i got 1 oz for $70. idk how theyre doing it, but they got some balls
 **Told through psilocybin’s language — by Me**
 
 
