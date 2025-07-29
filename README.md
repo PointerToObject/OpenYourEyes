@@ -111,7 +111,6 @@ I texted my boss. Put in my two weeks. Signed up for college. The trip was over,
 ## 🍄 Trip Log – 1.5g Psilomart Nondetect legal mushrooms ( still avaliable online lmfao )  
 **Told through psilocybin’s language — by Me**
 
----
 
 ### ☀️ A Quiet Sunday
 
@@ -123,7 +122,6 @@ Then I stepped into my truck, cracked the windows, hit play on some 90s rock, sp
 
 The tea was earthy. The spliff grounded me. The sun was perfect. Everything clicked.
 
----
 
 ### 🌿 The Come-Up
 
@@ -135,7 +133,6 @@ The walls were breathing. Warm waves of euphoria pulsed through me. Colors warpe
 
 I lay down and closed my eyes.
 
----
 
 ### 👁️ Closed-Eye Realms & Gear People
 
@@ -149,7 +146,6 @@ Tiny, joyful, mechanical beings whirring and clicking in harmony. They were buil
 
 > “This is it,” I thought. “I’ve stepped behind the curtain.”
 
----
 
 ### 🌑 The Void Speaks
 
@@ -178,7 +174,6 @@ I asked:
 **Silence.**  
 Then—snap.
 
----
 
 ### 💫 The Return
 
@@ -191,7 +186,6 @@ They were **life** itself.
 I opened my eyes and laughed. Only an hour had passed.  
 > “This trip’s gonna be something special.”
 
----
 
 ### 🚿 Showers & Spliffs
 
@@ -201,7 +195,6 @@ Later, I climbed back into my truck, smoked again. The dashboard came alive. The
 
 No questions this time. Just **awe**. Just **gratitude**.
 
----
 
 ### 🧠 The Realization
 
@@ -229,12 +222,12 @@ But another still lingers...
 
 > **Why am I here?**
 
----
 
 One day, I’ll return to find out.
 
 Until then...  
 The Gear People continue to build.
 
+---
 
 
