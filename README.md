@@ -253,7 +253,7 @@ The Gear People continue to build.
 
 ## 🍫 Legal mushroom gummies/chocolate (Silly Farms, can still purchase on clearnet)
 [Silly Farms Premium Microdose Magic Mushroom Gummies - 4000mg Labs PDF](https://greatcbdshop.com/wp-content/uploads/2024/09/Silly-Farms-Premium-Microdose-Magic-Mushroom-Gummies-4000mg-Labs.pdf)
-# 4-AcO-DMT ^LAB REPORTS^
+# 4-AcO-DMT ^LAB REPORTS^ (Psilacetin (PSLA) = 4-AcO-DMT) || 30 mg's per package = 3.5g of psilocybe cubensis
 
 ## 🌟 Introduction
 
