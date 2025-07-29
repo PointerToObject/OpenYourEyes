@@ -42,18 +42,39 @@ Honestly, this isn’t a trip. It’s a day off. If you’re already high and wa
 
 ---
 
-## 🍵 Trip Log – 2.5g Tea (Frozen Dose)  
-**Title:** The Mayan Door
+## 🍵 2.5g Frozen Mushroom Tea Trip  
+**Faster, stronger, weirder.**
 
-I had this mushroom tea frozen in my freezer like a sealed spell — 2.5 grams steeped and ready, waiting for the right moment. One boring night, I thawed it. Poured it. Drank it.
+I made a mushroom tea using 2.5 grams of B+ and froze it in a mason jar for later. About a week passed, and one night—bored and ready—I unfroze it and drank it.
 
-Within six minutes, something primal started humming in my stomach. A pulse. By fifteen, my pupils had turned into saucers and I was already laughing — no punchline, just tripping.
+The set and setting were perfect. I planned it because I knew I’d have nothing going on that night. Within six minutes, I felt it—like the psilocybin activated instantly in my stomach. Not even fifteen minutes in, my pupils were massive and I was already laughing.
 
-I stumbled into the shower like it was a sacred chamber. The shower head looked different — not wrong, just… suspicious. I could tell: the veil had lifted. Warm water hit my skin like an anointing, and behind my eyelids, slow curls of color twisted into early visuals. Yellow, especially — it glowed with this rich, strange aura like it had been upgraded in the color hierarchy.
+I went to take a shower, and the moment I saw the shower head, something felt off. I thought it looked different. That’s when I knew—**I was tripping.** I took a nice long shower with light swirls dancing behind my eyelids.
 
-Dabs deepened the experience. I sat in my chair and stared at the door — really stared at it, for the first time in my life. The wood grain flowed, subtle but certain, like it was alive. The walls breathed. The edges shimmered with soft RGB light.
+After I dried off, I went to take some dabs.
 
-Then came the real show — the CEVs. Eyes closed, I entered this hazy purple-red chamber. It expanded. Warped. Took shape. And suddenly, it was clear — a room filled with two Mayan-like entities made of motion and meaning, shifting, watching. Then they were gone. The scene flipped. Now it was random objects performing random acts — untranslatable. DMT had changed something in me. Psilocybin used to show me melting textures. Now it speaks in alien stories.
+### 🌈 Visual Shifts
+
+Colors started changing. Yellow stood out more than any other—it had this subtle glowing hue to it that made it feel alive. I sat in my chair and took another dab, and then my eyes caught on the door. I’d never really just stared at it before.
+
+The wood grain was swirling.
+
+The walls started breathing. There was this faint RGB tone around the edges of everything. My perception wasn’t just altered—it was transforming. I laid down to see where the visuals would take me.
+
+### 🌀 CEVs and Entities
+
+With my eyes closed, I dropped into something deep. It began as a fuzzy purple and red space, kind of hard to see. It kept expanding and warping—stretching itself out—and then, suddenly, it all got clear.
+
+I was inside some kind of strange room. Two weird Mayan-looking entities were there, morphing and moving around in impossible ways. Then the scene changed—random objects doing random things. No logic. No narrative.
+
+Just psychedelic chaos.
+
+Since I’ve done DMT, my psilocybin visuals have taken on this weird, unexplainable quality. They don’t make sense anymore. They don’t try to.
+
+They just are.
+
+**Hoping 3.15g gives me something even more clear.**
+
 
 ---
 
